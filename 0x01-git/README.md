@@ -1,1 +1,1 @@
-I love miss Ray so much!!
+I love miss Ray!
